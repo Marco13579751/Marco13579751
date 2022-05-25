@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Marco13579751
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning in biomedical engeneering
+- 🌱 I’m currently learning in biomedical engeneering university in Genova.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me = andreolimarco01@gmail.com
 
